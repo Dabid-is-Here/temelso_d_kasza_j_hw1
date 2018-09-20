@@ -1,0 +1,1 @@
+# temelso_d_kasza_j_hw1
